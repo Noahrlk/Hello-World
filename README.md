@@ -1,3 +1,3 @@
 # Hello-World
-Ideas 
+Ideas, 
 i like tacos! and learning new skill sets!
